@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @KrisQK
-- 🌱 I’m currently learning IT in the University of Auckland
-- 💞️ I’m looking to collaborate on open source softwares
-- 🏓 I'm so good at table tennies AKA pingpang!
-- 📫 How to reach me 1326740434@qq.com
+- 🌱 IT Master in the University of Auckland at NZ🇳🇿
+- 💞️ Looking to collaborate on open source softwares.
+- 🏓 Good at table tennies AKA pingpang!
+- 📫 How to reach me 1326740434@qq.com if you also in auckland~

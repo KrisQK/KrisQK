@@ -1,4 +1,4 @@
 - 🌱 IT Master in the University of Auckland at NZ🇳🇿
 - 💞️ Looking to collaborate on open source softwares.
-- 🏓 Good at table tennies AKA pingpang!
+- 🏓 Good at table tennies 
 - 📫 How to reach me 1326740434@qq.com if you also in auckland~
